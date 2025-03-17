@@ -10,3 +10,6 @@ Aujourd’hui, je partage mes écrits à travers ce site, un espace dédié à m
 N’hésitez pas à me suivre, à laisser un commentaire ou à m’écrire. Votre regard sur mes histoires est ce qui les rend vivantes.
 
 Bienvenue dans mon monde.
+
+Doret ETSA - Aureur
+Cordialement !!!
